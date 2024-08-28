@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @JackieKay98
+- 👀 I’m interested in getting my career started
+- 🌱 I’m currently learning computer engineering
+- 💞️ I’m looking to collaborate on anything that will help me reach my goals
+- 📫 How to reach me ...
+- 😄 Pronouns: whatever you see me as
+- ⚡ Fun fact: did you know the longest English word is 189,819 letters long?
